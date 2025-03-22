@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Online communities
 - 📫 How to reach me navyasrimekapothula@gmail.com
 - 😄 Pronouns: Navya
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: "Your ears never stop growing."
 
 <!---
 Navya2024744/Navya2024744 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
